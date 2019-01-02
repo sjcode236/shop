@@ -20,6 +20,7 @@ Which free government cell phone companies use which networks?
 https://www.freegovernmentcellphones.net/cdma-gsm-lte-phone-compatible-with-my-free-phone-network   
 
 Safelink Wireless – AT&T GSM, T-Mobile GSM, Sprint CDMA, Verizon CDMA, U.S. Cellular CDMA. Depends on geographic location.    
+https://www.safelinkwireless.com/     
 Assurance Wireless – Sprint CDMA    
 Access Wireless – Sprint CDMA     
 Budget Mobile – Sprint CDMA, Verizon CDMA (NOTE: Hearing aid-compatible phones are both CDMA GMS-compatible) Boomerang, which has taken      over the accounts of many Budget customers is currently negotiating a contract with a national GSM provider.
