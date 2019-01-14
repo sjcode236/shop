@@ -38,6 +38,12 @@ https://www.amazon.com/Canon-T6-Digital-18-55mm-3-5-5-6/dp/B01CO2JPYS
 
 
 
+
+
+==== Panasonic ==================
+
+Luminx g85  mirrorless camera 
+
     
      
      
