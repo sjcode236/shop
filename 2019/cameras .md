@@ -36,6 +36,18 @@ Canon EOS Rebel T6 Digital SLR
 https://www.amazon.com/Canon-T6-Digital-18-55mm-3-5-5-6/dp/B01CO2JPYS     
      
 
+Canon EOS M50 Mirrorless Digital Camera 
+EOS M100 EF-M 15-45mm IS STM Kit
+https://www.usa.canon.com/internet/portal/us/home/products/list/cameras/eos-dslr-and-mirrorless-cameras/mirrorless/mirrorless    
+       
+         
+
+
+
+
+
+
+
 
 
 
