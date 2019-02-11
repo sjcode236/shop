@@ -45,10 +45,10 @@ https://www.youtube.com/watch?v=W_6D_c3TcGA
 EOS M6 EF-M 15-45mm      
  Canon M6 vs  the Canon M50    
 https://www.youtube.com/watch?v=RZnya6grBQA     
+https://www.youtube.com/watch?v=GzoNFsNtTA0     
      
-     
-
-
+       
+       
 ==== Panasonic ==================
 
 Luminx g85  mirrorless camera 
