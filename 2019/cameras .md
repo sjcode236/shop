@@ -5,8 +5,8 @@
 https://www.youtube.com/channel/UC_acrluhgPmor082TT3lhDA      
 
 
-Camera  models to follow    
 
+ Camera  models to follow   
 =====Panasonic Lumix DMC-FZ80  , Panasonic Lumix DMC-FZ70    
 https://cameradecision.com/compare/Canon-PowerShot-SX530-HS-vs-Panasonic-Lumix-DMC-FZ80    
 https://www.youtube.com/watch?v=ektpGs2JGbk    
@@ -14,7 +14,8 @@ https://www.shutterbug.com/content/panasonic-lumix-dc-fz80-superzoom-camera-revi
 https://www.pcmag.com/review/358939/panasonic-lumix-dmc-fz80   
 http://snapsort.com/compare/Canon-PowerShot-SX530-HS-vs-Panasonic-Lumix-DMC-FZ70    
     
-     
+ =========Canon ================        
+ https://www.cpricewatch.com/     
 ===== Canon - PowerShot SX530 , sx730 , sx740  ,sx 60     
      
     
