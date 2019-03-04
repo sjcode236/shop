@@ -2,9 +2,11 @@
 
 
 
-macys  4 tops  ann & 3 kids
-macys 9 tops 
-macys 3 tops
+
+=====================================
+macys  4 tops  ann & 3 kids   got all
+macys 9 tops   
+macys 3 tops   
 === =============================================    
 macys 5 tops  ordered feb14    got it  
 macys ann  2 pants ;got & returnd   
