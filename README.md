@@ -1,3 +1,0 @@
-# shop
-
-shopping References 
