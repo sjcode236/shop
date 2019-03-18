@@ -6,10 +6,11 @@ Rej JM collection pants : Medium short ,  10P , Petit Medium
 
 
 
-=== amma  ================================================
-JM collection   pants , 12P , Petit Large
+=== amma  ================================================    
 
-JM collection Top , Petit Large
+JM collection   pants , 12P , Petit Large   or  12s
+
+JM collection Top , Reg Large  , Petite Large little tight , 
 
 
 
