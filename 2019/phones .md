@@ -15,3 +15,13 @@ https://mumizaza.com/product/lg-stylo-4-32-gb-unlocked-att-sprint-t-mobile-veriz
 
 samsung s9  
 costco  350 
+
+64GB Google Pixel 2 XL Smartphone (Verizon, Black)
+https://slickdeals.net/f/12974671-best-buy-verizon-google-pixel-2-xl-64-gb-399-99-free-shipping?src=SiteSearchV2_SearchBarV2Algo1         
+https://www.bestbuy.com/site/google-pixel-2-xl-64gb-just-black-verizon/6099989.p?ref=8575135&loc=8e7aee2a53bd11e9801aee7b3f3e8d1f0INT&acampID=8e7aee2a53bd11e9801aee7b3f3e8d1f0INT&skuId=6099989%22               
+https://www.walmart.com/ip/Google-Pixel-2-XL-64GB-Verizon-Smartphone-Black-and-White/122098638?wmlspartner=wlpa&selectedSellerId=2969&adid=22222222227133432624&wl0=&wl1=g&wl2=c&wl3=242002188444&wl4=pla-420490308234&wl5=9030106&wl6=&wl7=&wl8=&wl9=pla&wl10=114221127&wl11=online&wl12=122098638&wl13=&veh=sem&gclid=CjwKCAjwp_zkBRBBEiwAndwD9V21sqZkyOYZKLy-mkK6tyRrmI17166ZyhZem0uLMgst0pqScxra3RoCTc4QAvD_BwE     
+
+
+
+
+
