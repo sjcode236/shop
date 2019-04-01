@@ -27,3 +27,5 @@ Reviews
 https://www.phonearena.com/reviews/LG-V35-ThinQ-Review_id4546      
 https://www.cnet.com/reviews/lg-v35-thinq-review/     
 https://www.digitaltrends.com/cell-phone-reviews/lg-v35-thinq-review/     
+https://www.gsmarena.com/compare.php3?idPhone1=8733&idPhone2=8466&idPhone3=9115      
+
