@@ -16,4 +16,6 @@ https://gadgets.ndtv.com/mobiles/oneplus-phones
 https://gadgets.ndtv.com/mobiles/nokia-phones     
 
 
-
+https://www.androidheadlines.com/category/lg     
+https://www.androidheadlines.com/category/google-news
+https://www.androidheadlines.com/category/samsung
