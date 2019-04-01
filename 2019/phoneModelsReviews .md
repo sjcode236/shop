@@ -25,3 +25,5 @@ https://www.androidheadlines.com/category/samsung
 
 Reviews      
 https://www.phonearena.com/reviews/LG-V35-ThinQ-Review_id4546      
+https://www.cnet.com/reviews/lg-v35-thinq-review/     
+https://www.digitaltrends.com/cell-phone-reviews/lg-v35-thinq-review/     
