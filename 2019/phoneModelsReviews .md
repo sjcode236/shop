@@ -19,3 +19,9 @@ https://gadgets.ndtv.com/mobiles/nokia-phones
 https://www.androidheadlines.com/category/lg     
 https://www.androidheadlines.com/category/google-news
 https://www.androidheadlines.com/category/samsung
+
+
+
+
+Reviews      
+https://www.phonearena.com/reviews/LG-V35-ThinQ-Review_id4546      
