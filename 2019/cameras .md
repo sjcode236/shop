@@ -54,6 +54,9 @@ https://www.youtube.com/watch?v=GzoNFsNtTA0
 
 Luminx g85  mirrorless camera 
 
+Panasonic LUMIX G7    
+https://www.amazon.com/PANASONIC-Mirrorless-14-42mm-Megapixels-DMC-G7KS/dp/B00X409O6O      
+
     
      
      
