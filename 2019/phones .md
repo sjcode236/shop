@@ -22,6 +22,15 @@ https://www.bestbuy.com/site/google-pixel-2-xl-64gb-just-black-verizon/6099989.p
 https://www.walmart.com/ip/Google-Pixel-2-XL-64GB-Verizon-Smartphone-Black-and-White/122098638?wmlspartner=wlpa&selectedSellerId=2969&adid=22222222227133432624&wl0=&wl1=g&wl2=c&wl3=242002188444&wl4=pla-420490308234&wl5=9030106&wl6=&wl7=&wl8=&wl9=pla&wl10=114221127&wl11=online&wl12=122098638&wl13=&veh=sem&gclid=CjwKCAjwp_zkBRBBEiwAndwD9V21sqZkyOYZKLy-mkK6tyRrmI17166ZyhZem0uLMgst0pqScxra3RoCTc4QAvD_BwE     
 
 
+LG G7 ThinQ T-Mobile 64GB G710 4G LTE 6.1" IPS LCD     
+https://www.thewirelesscircle.com/lg-g7-thinq-t-mobile-64gb-g710-4g-lte-6-1-ips-lcd-display-4gb-ram-dual-16mp-16mp-smartphone-new-usa-version-included-second-year-promise-card.html     
+
+LG V30 64GB H932 T-Mobile 4G LTE 6" P-OLED    
+https://www.thewirelesscircle.com/lg-v30-64gb-h932-t-mobile-4g-lte-6-p-oled-display-4gb-ram-dual-16mp-13mp-smartphone-new.html     
+
+LG V35 ThinQ 64GB GSM Unlocked 4G LTE 6" P-OLED capacitive touchscreen 6GB RAM Dual 16MP + 16MP     
+https://www.thewirelesscircle.com/index.php/cell-phones/lg/lg-v35-thinq-64gb-gsm-unlocked-4g-lte-6-p-oled-capacitive-touchscreen-6gb-ram-dual-16mp-16mp-camera-phone-new.html     
+
 
 
 
