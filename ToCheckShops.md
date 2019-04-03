@@ -33,3 +33,11 @@ https://www.salesumo.com/
 
 
 
+
+
+###====Deal Sites    
+slickdeals.net    
+https://www.buydig.com/     
+
+
+
