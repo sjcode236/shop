@@ -21,6 +21,6 @@ wikibuy
 https://slickdeals.net/newsearch.php?src=SearchBarV2&q=phone&searcharea=deals&searchin=first    
       
      
-     
-     
+           
+          
 adfdaf
