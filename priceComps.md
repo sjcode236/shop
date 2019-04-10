@@ -21,7 +21,7 @@ wikibuy
 https://slickdeals.net/newsearch.php?src=SearchBarV2&q=phone&searcharea=deals&searchin=first    
       
      
-https://www.capitalone.com/bank/savings-accounts/online-money-market-account/
+https://www.capitalone.com/bank/savings-accounts/online-money-market-account/     
 
 
           
