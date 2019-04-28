@@ -12,7 +12,14 @@ Ryzen 7
 Category	1700	2700	1700X	2700X	1800X
   Cores	8    8	 8	 8	8   
 Threads	16	16	16	16	16    
-    
+
+### Intel   
+Model:	i9-9900K	i7-9700K	i5-9600K	i3-9100k   
+Cores:	8/16	    8/8	         6/6	      4/4    
+Base Freq:	3.6	3.6	3.7	3.7    
+Turbo Freq:	5.0	4.9	4.6	N/A    
+Cache:	16MB	    12MB	     9MB	       6MB    
+
 ======Comparison Charts for Intel® Core™ Desktop Processor Family   
 https://www.intel.com/content/www/us/en/support/articles/000005505/processors.html   
    
