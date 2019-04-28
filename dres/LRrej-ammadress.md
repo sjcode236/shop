@@ -1,5 +1,5 @@
 
- amma  specs  bottom
+ amma  specs  at bottom
 
 
 Rej JM collection pants : Medium short ,  10P , Petit Medium
