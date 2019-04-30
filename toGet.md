@@ -4,12 +4,12 @@
 TO get
 =========================
 
-===============================
-gfdg
+===============================    
+
+
 phone from Your order # is: 100002032. LGV30
 macys dress 
 samsung  power bank
-
 ===================================
 macys  4 tops  ann & 3 kids   got all    
 macys 9 tops   
