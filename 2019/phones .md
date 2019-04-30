@@ -39,6 +39,9 @@ https://www.ebay.com/usr/yumnatel08
 https://www.ebay.com/itm/LG-V30-64GB-H932-T-Mobile-4G-LTE-6-4GB-RAM-Dual-16MP-13MP-Smartphone/283360029573       
 
 
+amazing-wireless    
+https://www.ebay.com/str/amazingwireless    
+
 
 CELL2GO     
 https://www.amazon.com/s?me=A2NTVDDW2IZZYQ&marketplaceID=ATVPDKIKX0DER      
