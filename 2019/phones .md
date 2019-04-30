@@ -46,3 +46,5 @@ https://www.ebay.com/str/amazingwireless
 CELL2GO     
 https://www.amazon.com/s?me=A2NTVDDW2IZZYQ&marketplaceID=ATVPDKIKX0DER      
 
+buydig   
+https://www.rakuten.com/shop/buydig/    
