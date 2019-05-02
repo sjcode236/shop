@@ -6,6 +6,10 @@
 
 
 
+
+pool cleaner     
+2TB HDisk   bought from new egg 
+freezer   bought from sams club ,  , need to add for warranty , bought warranty for 3 years  
 ======= curtain =loft  96" height x  133" len    
 Royal Velvet® Encore Rod-Pocket/Back Tab Curtain Panel   
 https://www.jcpenney.com/p/royal-velvet-encore-rod-pocket-back-tab-curtain-panel/pp5003760215?pTmplType=regular&amp;rrec=true&rrplacementtype=product1_rr
