@@ -2,7 +2,8 @@
 
 quick notes to buy    
 ===To buy ======
- 
+
+laptop;  
 starrite ring ; 
 kids shoes ;   
 my shoes ;  
