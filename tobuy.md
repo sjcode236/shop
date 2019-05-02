@@ -3,10 +3,10 @@
 quick notes to buy    
 ===To buy ======
  
-starrite ring 
-kids shoes 
-my shoes 
-amma shoes
+starrite ring ; 
+kids shoes ;   
+my shoes ;  
+amma shoes ;  
 
 
 elliptical runner proform 
