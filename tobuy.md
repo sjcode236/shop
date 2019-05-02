@@ -9,8 +9,8 @@ my shoes ;
 amma shoes ;  
 
 
-elliptical runner proform 
-faucet     bought from homedepot , need to get it by mail 
+elliptical runner proform;   
+faucet     bought from homedepot , need to get it by mail;     
 
 
 Order Number: 113-9905435-5536234
