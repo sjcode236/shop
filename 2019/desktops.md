@@ -35,6 +35,8 @@ https://www.lenovo.com/us/en/desktops-and-all-in-ones/c/DESKTOPS
  
  
  
- 
+https://www.microcenter.com/product/602474/pavilion-gaming-pc  
+
+
  
  
