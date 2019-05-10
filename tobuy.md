@@ -11,6 +11,8 @@ amma shoes ;
 
 
 elliptical runner proform;   
+https://github.com/sjcode236/shop/blob/master/2019/elliptical%20.md    
+
 faucet     bought from homedepot , need to get it by mail;     
 
 
