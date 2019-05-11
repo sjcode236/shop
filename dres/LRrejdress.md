@@ -1,0 +1,21 @@
+
+ === amma  ==============  specs  
+https://github.com/sjcode236/shop/blob/master/dres/LRamma.md    
+
+
+
+
+
+Rej JM collection pants : Medium short ,  10P , Petit Medium
+
+
+
+ =======shoes ======
+ 7.5  
+ clark  
+ yuu 
+ sketechers  
+
+
+
+
