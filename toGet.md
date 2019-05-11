@@ -1,7 +1,10 @@
 
 To ret====================   
 jumper     
-sketechers shoes 
+sketechers shoes   
+Ross     vases
+walmart  flowers     
+
 
 
 TO get -------------------------
