@@ -5,7 +5,7 @@ https://github.com/sjcode236/shop/blob/master/dres/LRamma.md
 
 
 
-
+=======pants
 Rej JM collection pants : Medium short ,  10P , Petit Medium
 
 
@@ -15,6 +15,10 @@ Rej JM collection pants : Medium short ,  10P , Petit Medium
  clark  
  yuu 
  sketechers  
+ 
+ =======Tops 
+ White Mark@ jcpenney 
+
 
 
 
