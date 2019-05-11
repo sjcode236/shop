@@ -5,7 +5,7 @@ https://github.com/sjcode236/shop/blob/master/dres/LRamma.md
 
 
 
-=======pants
+=======pants     
 Rej JM collection pants : Medium short ,  10P , Petit Medium
 
 
@@ -17,7 +17,10 @@ Rej JM collection pants : Medium short ,  10P , Petit Medium
  sketechers  
  
  =======Tops ======     
- White Mark@ jcpenney 
+ White Mark@ jcpenney     
+style & co  @ macys     
+Liz Claiborne 3/4  sleeve     
+
 
 
 
