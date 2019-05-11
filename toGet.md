@@ -9,12 +9,16 @@ TO get -------------------------
 
   
 
-Target  3  Tides 5/1/2019
-phone from Your order  is: 100002032. LGV30     
-macys dress    
-samsung  power bank      
+
+    
+    
 
 ===================================
+macys dress    
+samsung  power bank  
+phone from Your order  is: 100002032. LGV30 
+Target  3  Tides 5/1/2019
+
 macys  4 tops  ann & 3 kids   got all    
 macys 9 tops   
 macys 3 tops   
