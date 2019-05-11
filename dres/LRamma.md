@@ -7,10 +7,12 @@
 
 
 =======tops    
+jcpnney , tunic tops , 
 JM collection Top , 
 Reg Large  , Petite Large little tight , Petite need to be XL
 
-LIz clairborne ; XL ; 95% polyester 5% spandex   
+
+Liz Claiborne 3/4 Tie Sleeve Knit Top ; XL ; 95% polyester 5% spandex   
 
  
  
