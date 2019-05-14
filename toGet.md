@@ -4,6 +4,10 @@ To ret====================
 sketechers shoes    
 walmart  flowers     
 ebay phone cover
+goog phone 
+goog  trade in package 
+goog store credit (exp aug 31)
+  August 31, 2019. Must buy a Pixel 3a by May 18, 2019 at 11:59pm PT to qualify for the credit.
 
 
 TO get -------------------------
