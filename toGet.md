@@ -1,8 +1,7 @@
 
 To ret====================   
-jumper     
-sketechers shoes   
-Ross     vases
+  
+sketechers shoes    
 walmart  flowers     
 
 
