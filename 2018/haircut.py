@@ -27,3 +27,7 @@ https://www.localsaver.com/glendale-az
 https://www.valpak.com/coupons/savings/personal-care/phoenix/az     
 
     
+https://www.costcutterssalons.com     
+sports clips 
+greatclips 
+    
