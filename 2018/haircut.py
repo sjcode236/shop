@@ -23,6 +23,7 @@ peoria and 59 ave ;  10 to 8pm , $15
 fantastic sams 
 83 ave and unionhills 
 monday specials allday
-https://www.localsaver.com/glendale-az     
-https://www.valpak.com   
+https://www.localsaver.com/glendale-az      
+https://www.valpak.com/coupons/savings/personal-care/phoenix/az     
+
     
