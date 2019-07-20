@@ -15,3 +15,5 @@ Philips  Airfryer
 
 Instant Vortex Plus 7-in-1 Air Fryer Oven, 10-Quart    
 walmart   
+https://lanaunderpressure.com/2019/07/05/initial-review-of-instant-pot-vortex-plus-airfryer/    
+https://www.youtube.com/watch?v=_7Q2J4oAa10    
