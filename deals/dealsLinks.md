@@ -2,6 +2,7 @@
 
 
 
+www.slickdeals.net    
 
 https://camelcamelcamel.com/top_drops    (free Amazon price tracker! site )     
 https://camelcamelcamel.com/popular
