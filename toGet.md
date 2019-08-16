@@ -1,28 +1,25 @@
 
 To ret====================   
   
-desk from walmart ,   
-   
-
-  
-  
 
 
 
-TO get -------------------------
-ebay phone cover   
-goog phone     
-goog  trade in package    
+TO get -=================================------------
 goog store credit (exp aug 31)  
   August 31, 2019. Must buy a Pixel 3a by May 18, 2019 at 11:59pm PT to qualify for the credit.  
+  
+
+
+    
+    
+
+===================================  
+desk from walmart ,  
+ebay phone cover   
+goog phone     
+goog  trade in package  
 pixel cover beofre may24
-amazon kids uduppu   
-
-
-    
-    
-
-===================================       
+amazon kids uduppu 
 macys dress    
 samsung  power bank  
 phone from Your order  is: 100002032. LGV30 
