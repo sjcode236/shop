@@ -17,11 +17,13 @@ https://www.kohls.com/
        
 
 ==== Kids  girls  sites  ==============================================
-hoodies /  jackets  
+hoodies /  jackets    
 https://oldnavy.gap.com/   
-https://www.target.com/s/navy+blue+uniform+hoodie
-https://www.frenchtoast.com    uniform hoodie     
+https://www.target.com/s/navy+blue+uniform+hoodie    
+https://www.frenchtoast.com    uniform hoodie      
 https://www.stitchfix.com/kids    
+
+https://www.zulily.com/category/girls/?ref=header   
 
 
 
