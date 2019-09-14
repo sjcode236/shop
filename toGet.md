@@ -1,4 +1,4 @@
 
-https://github.com/sjcode236/miscP/blob/master/shop/ToGet.md  
+https://github.com/sjcode236/shopP/blob/master/toGet.md
 
- 
+
