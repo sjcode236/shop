@@ -20,5 +20,10 @@ https://www.kohls.com/sale-event/coupons-deals.jsp
 
  
 https://www.theblackfriday.com/weekly-ads/    
-https://www.theblackfriday.com/weekly-ads/costco-weekly-ad.php     
+https://www.theblackfriday.com/weekly-ads/costco-weekly-ad.php    
+
+https://www.samsclub.com/sams/instant-savings-book/6930116.cp?saclp=1       
+https://www.costco.com/warehouse-savings.html     
+
+
 
