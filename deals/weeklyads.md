@@ -18,5 +18,7 @@ https://www.macys.com/shop/coupons-deals
 https://kohls.shoplocal.com/Kohls/Entry/LandingContent?storeid=2397949    
 https://www.kohls.com/sale-event/coupons-deals.jsp    
 
-
+ 
+https://www.theblackfriday.com/weekly-ads/    
+https://www.theblackfriday.com/weekly-ads/costco-weekly-ad.php     
 
