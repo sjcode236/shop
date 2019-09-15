@@ -14,7 +14,10 @@ https://www.theverge.com/2019/6/25/18700997/amazon-prime-day-deals-2019-how-to-b
 https://www.befrugal.com/weeklyads/    
 https://www.befrugal.com/coupons/restaurant/    
 https://www.befrugal.com/coupons/online/      
-https://www.befrugal.com/coupons/category/baby,-kids-toys/    
+https://www.befrugal.com/coupons/category/baby,-kids-toys/ 
+===============================    
+https://blog.cheapism.com/best-deals-at-costco/     
+==========================
 
 
 
