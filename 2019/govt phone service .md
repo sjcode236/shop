@@ -1,19 +1,12 @@
 
 
+
+
+https://www.safelinkwireless.com/Enrollment/Safelink/en/Web/www/default/index.html#!/newHome
+
 # Assurance Wireless #    
 is a federal Lifeline Assistance program brought to you by Virgin Mobile.    
-https://www.assurancewireless.com/      
-      
-
-    
-   
- 
- 
- 
- 
- 
- 
- 
+https://www.assurancewireless.com/     sprint / virgin mobile      
  
  
 Which free government cell phone companies use which networks?    
