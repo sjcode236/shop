@@ -1,6 +1,8 @@
 
 
 
+https://camelcamelcamel.com/    
+slickdeals.net    
 
 https://www.google.com/shopping      
 https://express.google.com/   
