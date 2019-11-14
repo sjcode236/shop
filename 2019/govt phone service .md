@@ -27,7 +27,7 @@ Terracom Wireless – Sprint CDMA, Verizon CDMA
 True Wireless – Sprint CDMA, Verizon CDMA    
 Tag Mobile – Sprint CDMA, Verizon CDMA, T-Mobile GSM    
 StandUp Wireless – Sprint CDMA    
-YourTel – Sprint CDMA, Verizon CDMA    
+YourTel – Sprint CDMA, Verizon CDMA     
      
          
                
