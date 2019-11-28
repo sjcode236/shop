@@ -1,5 +1,8 @@
 
 
+modernhome aria   
+
+
 Ninja Foodi 6.5-quart Pressure Cooker with TenderCrisp and Dehydrate   
 Ninja OP301 Pressure Cooker, Steamer & Air Fryer w/TenderCrisp Technology Pressure & Crisping Lid, 6.5 quart,    
 https://www.amazon.com/SharkNinja-OP401-Deluxe-TenderCrisp-Pressure/dp/B07FX68X1Y     
