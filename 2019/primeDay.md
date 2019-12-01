@@ -1,5 +1,5 @@
 
-
+=====2019 primeday ====================
 
 https://www.cnet.com/news/amazon-prime-day-2019-absolute-last-chance-on-these-great-tech-deals/    
 https://www.theverge.com/amazon-prime-day-deals-tech    
