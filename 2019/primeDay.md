@@ -15,8 +15,8 @@ https://thewirecutter.com/blog/walmart-target-best-buy-prime-deals/
 
 
 https://www.cnet.com/news/target-deal-days-2019-order-through-google-express-and-save-even-more/    
-https://www.target.com/c/deal-days/-/N-xgolj 
-https://www.thrillist.com/news/nation/best-target-day-deals-2019
+https://www.target.com/c/deal-days/-/N-xgolj    
+https://www.thrillist.com/news/nation/best-target-day-deals-2019    
 
  
 
